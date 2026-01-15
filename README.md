@@ -1,11 +1,11 @@
-![image alt](Untitled1031_20260113144827.png) 
+![image alt](Untitled1036_20260115165124.png) 
 
 <div align="center">
-You made me hurt my.. Hurt Andrew.
+𝐂𝐚𝐦𝐞𝐫𝐚𝐬 𝐫𝐨𝐥𝐥𝐢𝐧𝐠!! 
   <br>
 ✒⬳
 <br><br>
-  Hello, I'm Solros but you could also call me ivan. I don't mind!
+  Hello, I'm Solros but you could also call me anything. I don't mind!
 <br>
 ask me for inpso for my skins in Pony town! but please don't copy. 
 <br>
